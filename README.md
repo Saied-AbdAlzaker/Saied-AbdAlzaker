@@ -1,5 +1,4 @@
 ![image](https://github.com/Saied-AbdAlzaker/Saied-AbdAlzaker/assets/115116148/acc5c686-fdbe-4d8b-85f7-17b75fcb6443)
-<img width="250" align="right" src="https://c.tenor.com/_DOBjnGspYAAAAAM/code-coding.gif">
 
 <h3 align="center">
   Welcome to Saed Abd-Alzaker profile!
